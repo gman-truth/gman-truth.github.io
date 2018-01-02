@@ -1,1 +1,0 @@
-# gman-truth.github.io
